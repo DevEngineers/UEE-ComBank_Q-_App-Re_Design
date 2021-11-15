@@ -1,1 +1,1 @@
-## UEE-ComBankQ+ App Re-Designs
+## UEE-ComBankQ+ App Re-Design
